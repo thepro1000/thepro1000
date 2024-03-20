@@ -26,7 +26,8 @@ im a kid
 
 
 
-you will see me in vrc spin up
+
+
 
 
 
